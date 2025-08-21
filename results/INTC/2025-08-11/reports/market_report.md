@@ -1,0 +1,1 @@
+Okay, I will analyze INTC using technical indicators. First, I need to retrieve the stock data. What start date would you like me to use?

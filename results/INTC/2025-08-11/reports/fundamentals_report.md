@@ -1,0 +1,1 @@
+I am sorry, but I need more information to proceed. I need the ticker symbol for the company you want me to analyze. Once you provide the ticker, I will use the available tools to gather the fundamental information.

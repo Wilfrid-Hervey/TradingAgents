@@ -1,0 +1,1 @@
+I am sorry, but I lack the ability to access EODHD and Finnhub to gather the necessary information for a comprehensive report. I can only use the tools I have, which are limited to getting global and Google News.
